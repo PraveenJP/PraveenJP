@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-I'm Praveen J. (:heart:, :heart:, :heart:) to (new things, coding, develop) 
+I'm Praveen J. (💖, 💖, 💖) to (new things, coding, develop) 
 
 :star_struck: Happy Coding! 😊
 
