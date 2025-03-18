@@ -6,7 +6,7 @@ I'm Praveen J. (:heart:, :heart:, :heart:) to (new things, coding, develop)
 
 🧔 - About
 
-    - Name: Praveen Josephmasilamani
+    - Name: Praveen Joseph
     - LinkedIn: https://www.linkedin.com/in/praveenjp
     - Portfolio : https://praveenjp.github.io/  
  
